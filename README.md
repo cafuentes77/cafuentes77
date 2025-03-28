@@ -9,7 +9,7 @@
 
 ###
 
-<img align="right" height="150" src="https://i.imgflip.com/65efzo.gif"  />
+<img align="center" height="150" src="https://www.istockphoto.com/vector/seamless-halftone-dotted-digital-technology-wide-background-with-futuristic-neon-gm2166189928-586313183"  />
 
 ###
 
