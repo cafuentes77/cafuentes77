@@ -9,7 +9,7 @@
 
 ###
 
-<img align="center" height="150" src="https://pixabay.com/es/photos/image-2695569/"  />
+<img align="center" height="150" src="https://www.istockphoto.com/photo/javascript-inscription-against-laptop-and-code-background-learn-javascript-gm1284271878-381458620"  />
 
 ###
 
